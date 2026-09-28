@@ -1,0 +1,2 @@
+# premium-ikat-tie-001-ikat-warp-tie-resist-dye-wea
+Juggling scattered notes, pattern sketches, and dye batch records is killing your creative flow. The Ikat Warp Tie &amp; Resist Dye Weave Hub centralizes every detail of your ikat process—from warp planning through final weave—so you spend less time organizing and more time creating.  This Notion template transforms how you document and plan ikat-tie p
